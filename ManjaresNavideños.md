@@ -1,5 +1,4 @@
 # Manjares Navideños
-
 ## Coquito
 ### Ingredientes
 -🥛2 latas (13.5 onzas) de leche de coco
