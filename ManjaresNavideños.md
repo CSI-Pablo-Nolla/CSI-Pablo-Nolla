@@ -1,6 +1,7 @@
 # Manjares Navideños
 ## Coquito
 
+<img src="https://caribbeansoaps.com/wp-content/uploads/2019/12/coquito-drink-puerto-rico-christmas.jpg" width="520" height="374" />
 
 
 ### Ingredientes:
@@ -24,6 +25,13 @@
 
 ### Prodecimiento 
 
+1. Mezcle los ingredientes en una licuadora a alta velocidad durante 1-2 minutos o utilice una licuadora de inmersión.
+
+2. Vierta en una botella hermética (sellada de aire), preferiblemente vidrio. En Puerto Rico normalmente las personas usan la botella de ron vacía utilizada después de lavarla. RECICLAJE!!!
+
+3. Enfríe en el refrigerador durante al menos 4 horas, preferiblemente durante la noche.
+
+4. Agitar siempre vigorosamente antes de servir. Servir en vasos pequeños y espolvorear con canela en la parte superior y decir Feliz Navidad!
 
 
 #### Referencias:
