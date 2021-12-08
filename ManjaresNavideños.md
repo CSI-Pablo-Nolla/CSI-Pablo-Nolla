@@ -1,9 +1,13 @@
-# Manjares Navideños
-## Coquito
-
+<div aling="center">
 <img src="https://caribbeansoaps.com/wp-content/uploads/2019/12/coquito-drink-puerto-rico-christmas.jpg" width="520" height="374" />
 
 
+# Manjares Navideños
+  
+## Coquito
+
+</div>
+  
 ### Ingredientes:
 
 -🥛2 latas (13.5 onzas) de leche de coco
