@@ -40,3 +40,6 @@
 
 #### Referencias:
 https://caribbeansoaps.com/es/receta-de-coquito-delicia-puertorriquena/?gclid=CjwKCAiAhreNBhAYEiwAFGGKPHEXSQ7_e77cp_sX8kn2eEh6cAMIy7IHEfy_A7JcNPtYJnbuCaxHxxoCnrgQAvD_BwE
+
+#### Video:
+https://www.youtube.com/watch?v=PGXIbbXLA9A&ab_channel=AnaBelaval
